@@ -115,5 +115,5 @@
 
 ### 여담 ###
 대회 전날, 조마조마했던 우리...  
-![image](https://user-images.githubusercontent.com/117588181/214323663-acd90f7a-549f-43f4-a230-b9092cd17f0a.png)
+![image](https://user-images.githubusercontent.com/117588181/214323992-79616d6b-0293-49d8-b6f5-e1492dc73f1f.png)
 
