@@ -1,5 +1,5 @@
 # Create_Design
-[INU grade1 second semester] Create_Design 최병조 교수님
+[INU 1학년 2학기] Create_Design 최병조 교수님
 
 # 🚲 #
 **프로젝트 진행상황:** 종료  
